@@ -7,7 +7,7 @@ I love teamwork, creativity, and problem-solving—whether it’s collaborating 
 📌 Motto: “If something bothers me, I try to build a solution for it.”
 
 
-[![](https://i.pinimg.com/originals/90/70/32/9070324cdfc07c68d60eed0c39e77573.gif)](https://visitcount.itsvg.in)
+[![](https://i.pinimg.com/originals/90/70/32/9070324cdfc07c68d60eed0c39e77573.gif)](https://visitcount.---.in)
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/www.linkedin.com/in/nagesh-mansuke) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:mansukenagesh@gmail.com) 
